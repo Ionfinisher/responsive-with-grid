@@ -29,3 +29,5 @@ Ne ratez pas d'autres opportunités d'apprendre et de découvrir dans nos lives 
 Telegram: https://lnkd.in/dSzvvVy2  
 WhatsApp: https://lnkd.in/d2czW7z2  
 YouTube: https://lnkd.in/dnH4q44X
+
+Nous vous y attendons !
